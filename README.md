@@ -9,7 +9,7 @@
 
 - ‎‎⤷  int pretty please 🙏
 - ⤷  c+h unless i'm with someone 
-- ⤷  i'm ok with any ship as long as its legal
+- ⤷  i'm ok with any ship as long as its legal & not problematic 
   
 
  ![tumblr_b1fc64a857a73020fa21917946d45dd2_e0181cf3_2048](https://github.com/user-attachments/assets/77c5544a-3807-40f2-9f7d-225d0e54db27)
