@@ -8,7 +8,7 @@
 </p>
 
 - ‎‎⤷  int pretty please 🙏
-- ⤷  c+h unless i'm with friends
+- ⤷  c+h unless i'm with someone 
 - ⤷  i'm ok with any ship as long as its legal
   
 
