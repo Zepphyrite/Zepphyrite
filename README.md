@@ -7,8 +7,8 @@
 <img src="https://64.media.tumblr.com/3c4397a9bd2004d9860ce0e8c32acd3e/da69a5e18a2a330e-7a/s75x75_c1/fabecda0e9c88c301ae5212c075297e0c58ab339.gifv"/>
 </p>
 
-
-  
+<p align="center">[ꜱᴛʀᴀᴡᴘᴀɢᴇ]([url](https://zzzleep.straw.page))
+  <p align="center">[ᴀᴛᴀʙᴏᴏᴋ]([url](https://zepphyrite.atabook.org))
 
  ![tumblr_b1fc64a857a73020fa21917946d45dd2_e0181cf3_2048](https://github.com/user-attachments/assets/77c5544a-3807-40f2-9f7d-225d0e54db27)
 
