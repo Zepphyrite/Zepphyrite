@@ -8,8 +8,7 @@
 </p>
 <p align="center"><a href="https://zzzleep.straw.page"> ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
 
-<p align="center"><a href="https://https://zepphyrite.atabook.org"> ᴀᴛᴀʙᴏᴏᴋ</a>
- 
+<p align="center"><a href="https://zepphyrite.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>
  ![tumblr_b1fc64a857a73020fa21917946d45dd2_e0181cf3_2048](https://github.com/user-attachments/assets/77c5544a-3807-40f2-9f7d-225d0e54db27)
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ 
