@@ -1,5 +1,5 @@
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=17&duration=2500&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=just+whose+heartbeat+is+it+then%3F;mine%3F;that's+absurd.+i'm+not+even+human.+;something+as+sophisticated+as+a+heart+wouldn't+suit+me." alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=25&duration=2500&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=You+are+an+idiot!" alt="Typing SVG" /></a>
 </p>
 
 
@@ -7,9 +7,8 @@
 
 
 
-
 <p align="center">
-<img src="https://64.media.tumblr.com/3c4397a9bd2004d9860ce0e8c32acd3e/da69a5e18a2a330e-7a/s75x75_c1/fabecda0e9c88c301ae5212c075297e0c58ab339.gifv"/>
+<img src="https://64.media.tumblr.com/f77ec54bc157d6b8c3188ff2ee32481c/7e73e7ca2c7d37d0-09/s100x200/f153b61a6e93bfef38b1fe898668b2484b0e163d.webp"/>
 </p>
 
 
