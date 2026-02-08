@@ -1,7 +1,6 @@
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=25&duration=2500&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=THE+GAME" alt="Typing SVG" /></a>
+<img src="https://64.media.tumblr.com/6d5435086d0c19f08fac14a4f5f24c47/95df02dca29b4b74-7a/s1280x1920/c9f8ab26fef75f483038d15e41d8822f23107513.pnj"/>
 </p>
-
 
 
 
