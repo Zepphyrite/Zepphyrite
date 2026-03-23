@@ -11,8 +11,7 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤ
-ㅤㅤ
+ㅤㅤㅤ
 <p align="center">
-``90% of the times im sitting with friends and the other 10% im afk or offtab ,  dont be shy to int tho...
+  $$\color{#7f2c2c}{\text{``90 percent of the times im sitting with friends ,  and the other 10 percent im afk or offtab ,  dont be shy to int tho...}}$$
 </p>
