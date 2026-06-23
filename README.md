@@ -7,6 +7,9 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=25&duration=1500&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=W+I+P+!" alt="Typing SVG" /></a>
 </p>
 
+<p align="center">
+<img src="https://files.catbox.moe/zrb1cu.gif"/>
+</p>
 
 ㅤㅤ
 ㅤㅤㅤㅤ
