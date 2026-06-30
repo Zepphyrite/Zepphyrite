@@ -11,7 +11,11 @@
 <img src="https://files.catbox.moe/zrb1cu.gif"/width="300">
 </p>
 
-<p align="center"><a href="https://zepphyrite.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>    <a href="https://rentry.co/altdel">rentry</a>   <a href="https://pronouns.cc/@AltDelete">prns</a>
+<p align="center"><a href="https://zepphyrite.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>ㅤㅤ<a href="https://rentry.co/altdel">rentry</a>ㅤㅤ<a href="https://pronouns.cc/@AltDelete">prns</a>
+
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=25&duration=1500&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=YOU+LOST+THE+GAME" alt="Typing SVG" /></a>
+</p>
 
 ㅤㅤ
 ㅤㅤㅤㅤ
