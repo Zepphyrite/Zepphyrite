@@ -11,6 +11,8 @@
 <img src="https://files.catbox.moe/zrb1cu.gif"/width="300">
 </p>
 
+<p align="center"><a href="https://zepphyrite.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>    <a href="https://rentry.co/altdel">rentry</a>   <a href="https://pronouns.cc/@AltDelete">prns</a>
+
 ㅤㅤ
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
